@@ -6,6 +6,9 @@ It also causes economical loss to commercial places like shopping malls, amuseme
 ![Screenshot 2019-11-21 at 17 38 53](https://user-images.githubusercontent.com/49443497/102173200-87ec8600-3ec0-11eb-9c11-eefc64e4eba3.png)
 
 
+![Screenshot 2019-11-21 at 17 39 15](https://user-images.githubusercontent.com/49443497/102173211-8cb13a00-3ec0-11eb-9fda-d2ad1fe77034.png)
+
+
 ![Screenshot 2019-11-21 at 18 27 25](https://user-images.githubusercontent.com/49443497/102173212-8cb13a00-3ec0-11eb-8571-80663b28bfb6.png)
 
 
@@ -41,8 +44,5 @@ It also causes economical loss to commercial places like shopping malls, amuseme
 
 
 ![Screenshot 2019-11-21 at 18 28 44](https://user-images.githubusercontent.com/49443497/102173226-92a71b00-3ec0-11eb-9053-25008087865d.png)
-
-
-![Screenshot 2019-11-21 at 17 39 15](https://user-images.githubusercontent.com/49443497/102173211-8cb13a00-3ec0-11eb-9fda-d2ad1fe77034.png)
 
 
